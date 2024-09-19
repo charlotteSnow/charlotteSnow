@@ -1,2 +1,2 @@
 # About me
-hiiii im Char 
+hiiii im Char. 
