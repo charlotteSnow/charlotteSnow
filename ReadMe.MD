@@ -1,2 +1,2 @@
-# About me
+# ABOUT ME
 hiiii im Char. 
